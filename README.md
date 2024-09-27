@@ -1,4 +1,4 @@
-### Hi there 👋
+### In case i don't see ya: good afternoon good evening and goodnight.
 
 - You're not really supposed to be here , are you?
 - There are no boys to kiss here so get out
